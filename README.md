@@ -13,3 +13,10 @@ At the end we get to know about
 *Promoting phsical and mental well being
 1.30 - orientattion to campus , meeting peers,mentoring group
 4pm we leave the college
+
+
+#Day 2#
+9.30 to 10.30 - English proficiency test for all students
+10.30 to 11.30 - Math proficiency test for all students
+11.30 to 1pm - Break
+1 PM to 2 pm - All students go to auditorium for 
