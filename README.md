@@ -37,5 +37,11 @@ IMPORTANT INFO ABOUT FOOD HE GIVE:-
 physics and math to life  through fun , simplified experiments and demostrations
  
 11 am to 1 pm - Expert lecture by Dr priya darshni madam on " Universal human values"- Auditorium 
-  Dr. Priya darshni  continued with " Universal human values "-1 enriching young minds with clarity and purpose 
-tells how  happiness come to life  
+  Dr. Priya darshni  continued with " Universal human values "-1 enriching young minds with clarity and purpose .
+(tells how  happiness come to life )
+
+chief guest : s. Gurcharan singh grewal, Secretary - SGPC  encouraged students with his motivating  words.
+
+Interactive  discussion session followed , where students reflected on their English  and math proficiency  test result from day 2
+
+2pm we leave the college
