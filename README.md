@@ -26,5 +26,5 @@ At the end we get to know about
 IMPORTANT INFO ABOUT FOOD HE GIVE:-
 1.Food  is vital for physical and mental health
 2. Balanced diet prevent disease
-3. junk food like chips , soda , candy , pizza , burger etc are often high in taste but kow in nutrients 
+3. junk food like chips , soda , candy , pizza , burger etc are often high in taste but low in nutrients 
 2 pm to 3 pm - activity session by  causmic club 
