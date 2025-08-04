@@ -45,3 +45,16 @@ chief guest : s. Gurcharan singh grewal, Secretary - SGPC  encouraged students w
 Interactive  discussion session followed , where students reflected on their English  and math proficiency  test result from day 2
 
 2pm we leave the college
+
+
+
+
+# Day 4 #
+9.30 to 10.30 - (english lecture)-Prof. Aastik sharma 
+Introducing himself and took the introduction of students . 
+10.30 to 11.30 - (chemistry lecture)-Prof.
+karan bhalla
+firstly took the introduction from students and then he introduce himself and tells about basic things like attendance is mandatory,  examination etc
+11.30 to 12.30 - Break
+12.30 to 2.30 -  Expert lecture by Dr .Priya  Darshni madam on "Universal human values-2"
+
