@@ -1,5 +1,7 @@
 # Induction-Report
-#Day 1#
+
+#Day 1 #
+
 8.30 to 9.30 -(Shabad kirtan) In college Gurdwara sahib
 9.30 to 10 - (Tea and snacks) In college Gurdwara sahib
 10 am onwards ( Inaugural ceremony) In college Auditorium
@@ -17,7 +19,7 @@ At the end we get to know about
 
 
 
-# Day 2#
+# Day 2 #
 9.30 to 10.30 - English proficiency test for all students 
 10.30 to 11.30 - Math proficiency test for all students
 11.30 to 1pm - Break
