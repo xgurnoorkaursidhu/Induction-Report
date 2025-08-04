@@ -1,6 +1,6 @@
 # Induction-Report
 
-#Day 1 #
+Day 1 
 
 8.30 to 9.30 -(Shabad kirtan) In college Gurdwara sahib
 9.30 to 10 - (Tea and snacks) In college Gurdwara sahib
