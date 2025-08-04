@@ -52,9 +52,20 @@ Interactive  discussion session followed , where students reflected on their Eng
 # Day 4 #
 9.30 to 10.30 - (english lecture)-Prof. Aastik sharma 
 Introducing himself and took the introduction of students . 
+
+
 10.30 to 11.30 - (chemistry lecture)-Prof.
 karan bhalla
 firstly took the introduction from students and then he introduce himself and tells about basic things like attendance is mandatory,  examination etc
+
+
 11.30 to 12.30 - Break
+
 12.30 to 2.30 -  Expert lecture by Dr .Priya  Darshni madam on "Universal human values-2"
+she tells about 3 basic requirements of a human being:-
+1. Right understanding 
+2. Fulfilment in relationship 
+3. physical facility and not just physical facility 
+
+2.30 to 3.30 - we attended the session by causmic club we get to know about it in deep that it is hardworking club among all club and more popular in college
 
