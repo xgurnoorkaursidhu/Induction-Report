@@ -77,6 +77,16 @@ she tells about 3 basic requirements of a human being:-
 
 9.30 to 10.30 - P2P lecture (TCC sem hall)
 given by our seniors.
-They told about us about programing language  C++ .  which is understood by computer . 
+They told about us about programing language  C++ .  which is understood by computer . and  note down us tools to represent a solution.  some basics datatypes and rules for naming variables.
 
+
+
+
+10.30 to 11.30 - BEEE lecture (TCC sem hall)
+given by Prof simranjit kaur . firstly she introduced herself and then students introduced her  and then  she introduced to syllabus first . what are chapters and give little information about it .
+
+
+11.30 to 12.30 - Maths lecture ( TCC Sen hall) of Prof sukhminder singh . but lecture was not taken by him . and chem teacher took the lecture and introduce herself then students introduced them . And then she told  about physics what we will study and doing practicals all . And give some questions which can be asked in lab .
+
+12.30 we leave the college 
 
