@@ -69,5 +69,14 @@ she tells about 3 basic requirements of a human being:-
 2. Fulfilment in relationship 
 3. physical facility and not just physical facility 
 
-2.30 to 3.30 - we attended the session by causmic club we get to know about it in deep that it is hardworking club among all club and more popular in college
+2.30 to 3.30 - we attended the session by causmic club we get to know about it in deep that it is hardworking club among all club and more popular in college.
+
+
+
+# Day 5 #
+
+9.30 to 10.30 - P2P lecture (TCC sem hall)
+given by our seniors.
+They told about us about programing language  C++ .  which is understood by computer . 
+
 
