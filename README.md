@@ -128,7 +128,20 @@ by Prof Sukhminder singh . He tell us so many things that you should work hard n
 
 
 1.30 to 2.30 -  lecture by Dr.Arvind Dhingra(Director-step and incharge TAC) in AUDITORIUM .
-he tells the importance of GNDEC college . and should we thankful to God  how lucky you are  that you get admission in GNDEC college.
+he tells the importance of GNDEC college . and should we thankful to God  how lucky you are  that you get admission in GNDEC college. and tells that GNE students are everywhere in world. 
+
+
+2.30 to 4 - lecture by Dr  Lakhvir singh Khana ( Incharge CML) told about the various activities held in club . and it is different from other societies and clubs. there are only students which are serious that they should improve themselves only that students should join. and told about the lecture given by IIT that you can go through it and get the certificate from them . it will help you in your future.
+
+
+
+4 to 4.20 - Lecture by Mr Jasvir singh sekhon .  he fresh up all the students because all were tired and tells us clap when he says . and end the lecture and told he will give lecture next time not today.
+
+
+4.30 we leave the college 
+
+
+
 
 
 
