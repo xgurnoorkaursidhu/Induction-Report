@@ -104,5 +104,31 @@ given by Prof simranjit kaur . firstly she introduced herself and then students 
 
 11.30 to 12.30 - Maths lecture ( TCC Sen hall) of Prof sukhminder singh . but lecture was not taken by him . and chem teacher took the lecture and introduce herself then students introduced them . And then she told  about physics what we will study and doing practicals all . And give some questions which can be asked in lab .
 
-12.30 we leave the college 
+12.30 we leave the college .
+
+
+
+
+
+
+# Day 6 #
+
+
+9.30 to 10.30 - Math lecture ( ME SEM HALL)
+by Prof Sukhminder singh . He tell us so many things that you should work hard now on your on basis this is college where no one care u are attending class or not. you have got or not . And he told to download some apps which  will help you in math .
+
+
+
+
+10.30 to 11.30 - BEEE lecture ( MEE SEM HALL) by Prof simranjit kaur . but she doesn't come .  after some time  we were shifted to room F -114 and senior student give the lecture of P2P . 
+
+
+
+11.30 to 12.30 - Break
+
+
+1.30 to 2.30 -  lecture by Dr.Arvind Dhingra(Director-step and incharge TAC) in AUDITORIUM .
+he tells the importance of GNDEC college . and should we thankful to God  how lucky you are  that you get admission in GNDEC college.
+
+
 
