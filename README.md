@@ -138,7 +138,28 @@ he tells the importance of GNDEC college . and should we thankful to God  how lu
 4 to 4.20 - Lecture by Mr Jasvir singh sekhon .  he fresh up all the students because all were tired and tells us clap when he says . and end the lecture and told he will give lecture next time not today.
 
 
-4.30 we leave the college 
+4.30 we leave the college .
+
+
+
+
+
+
+#  Day 7 #
+
+
+
+9.30  to 10.30 - lecture by Dr. amit kamra ( Incharge DMC ) in auditorium.  he told about  digital marketing what is it . how it help us in our life . it is not a subject only the interest of student in  creative writing and design ,  graphics and visual contact , email campaigns , social media content and many more . it is enjoyable for students and also students can make carrier in it. they show us social media content it was really wonderful.
+
+
+
+
+10.30 to 11.30 - lecture by Dr.Parminder singh (dean student welfare ) in auditorium.  
+
+
+
+
+11.30 to 12.30 - lecture by Dr Randir singh on  'conduct of examination ' in auditorium .He explain about how examination are taken in semester , how much student should score Mark's  and he/she can see there marks in gndec website they can pay there fees in it. they can see  their exam schedule  in it. we will get roll nos and we are free to use wifi provided by them.
 
 
 
