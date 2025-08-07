@@ -165,4 +165,17 @@ he tells the importance of GNDEC college . and should we thankful to God  how lu
 
 
 
+12.30 to 1.30 - Break
+
+
+
+
+1.30 to 2.30 -( Chemistry lecture) by Prof karan bhalla.
+
+
+2.30 to 3.30 - (Math lecture )by Prof Sukhminder singh .
+
+
+
+
 
